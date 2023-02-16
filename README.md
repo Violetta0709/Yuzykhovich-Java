@@ -6,6 +6,7 @@ Looking forward to become Aston AQA trainee (Java)
 
 
 
+
 Violetta Yuzykhovich
 
 Виолетта Юзыхович
